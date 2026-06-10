@@ -1,4 +1,4 @@
-# 
+# Instantané sushiswap trading bot modèles pour Mac OS | Ultime sushiswap trading bot modèles pour PC Windows. Avec traitement par lots et API d'échange centralisé — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
